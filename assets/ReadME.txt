@@ -1,1 +1,0 @@
-This is pushed on 12th June, 2022 by Oshadha Punchihewa.
